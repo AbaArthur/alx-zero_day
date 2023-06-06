@@ -1,1 +1,1 @@
-Maame Aba Aidoo
+Maame Aba Kor Arthur
